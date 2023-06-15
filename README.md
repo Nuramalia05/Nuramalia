@@ -1,3 +1,3 @@
 # Profile
 
-Hello my name is 'Nuramalia'
+Hello my name is 'Nuramalia Putri'
